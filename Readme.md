@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sherylchepngetich77@gmail.com**
 
-- ⚡ Fun fact **All a programmer needs: the right amount of curses mixed with just enough coffee**
+- ⚡ Fun fact **The right amount of curses mixed with just enough coffee!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
